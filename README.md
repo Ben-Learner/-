@@ -19,8 +19,13 @@ https://mp.weixin.qq.com/s/_7bnAUL8TVccsZdHrxwYxA
 
 https://mp.weixin.qq.com/s/sDuQIJPL5uHsdeeOx_UsVQ
 
-
 当前还无反馈
+
+- 东方空间（民营航天）
+
+https://www.orienspace.com/
+
+通过高中校友转投，可靠性设计/人工智能算法工程师岗位
 
 ## 待投递单位
 
