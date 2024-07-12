@@ -27,48 +27,52 @@ https://www.orienspace.com/
 
 通过高中校友转投，可靠性设计/人工智能算法工程师岗位
 
-## 待投递单位
+- 中科院自动化所
 
-- 中国航空制造技术研究院
-
-https://mp.weixin.qq.com/s/qWi7fa4LQFObQhaq-l-ElA
-
-- 中国电信人工智能研究院
-
-https://mp.weixin.qq.com/s/uJ6BGKYj4J0Kd_CEBjrkGg
-
-- 北京空间机电研究所
-
-http://yjs.ale99.com/
-
-- 中国石油所属企业博士后
-
-https://mp.weixin.qq.com/s/BTNr8zpqaS-u--RidIHgyA
-
-- 美团2025届北斗计划
-
-https://mp.weixin.qq.com/s/Wc9nCbqRLjqWVQvt7lMjfQ
+https://mp.weixin.qq.com/s/Oru1bDR8PT7UkBhGqdu-Kg
 
 - 中国航空研究院
 
 https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
-- 中科院自动化所
+- 航天五院宇航物资保障事业部
+- 航天五院北京控制工程研究所
+- 
 
-https://mp.weixin.qq.com/s/Oru1bDR8PT7UkBhGqdu-Kg
+## 待投递单位
 
-- 国家电网提前批
+- 中国航空制造技术研究院（放弃）
+
+https://mp.weixin.qq.com/s/qWi7fa4LQFObQhaq-l-ElA
+
+- 中国电信人工智能研究院（放弃）
+
+https://mp.weixin.qq.com/s/uJ6BGKYj4J0Kd_CEBjrkGg
+
+- 北京空间机电研究所（放弃）
+
+http://yjs.ale99.com/
+
+- 中国石油所属企业博士后（放弃）
+
+https://mp.weixin.qq.com/s/BTNr8zpqaS-u--RidIHgyA
+
+- 美团2025届北斗计划（放弃）
+
+https://mp.weixin.qq.com/s/Wc9nCbqRLjqWVQvt7lMjfQ
+
+- 国家电网提前批（未到时间）
 
 https://mp.weixin.qq.com/s/LKQQlMoBYvbTF2caeIPEDA
 
-- 腾讯2025青云计划
+- 腾讯2025青云计划（放弃）
 
 https://mp.weixin.qq.com/s/zVB0eLilxP8zXJjztZmvew
 
-- 中国船舶集团
+- 中国船舶集团（九月份开启）
 
 https://mp.weixin.qq.com/s/hVKikh3HFXeDL_ceW_QxQQ
 
-- 京东博士研究生管培生项目
+- 京东博士研究生管培生项目（放弃）
 
 https://mp.weixin.qq.com/s/Uc-MbQS3kXk8Dhxvti7K9g
