@@ -39,6 +39,13 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 - 航天五院北京控制工程研究所
 - 
 
+- 中国航空工业发展研究中心
+  预先研究岗位
+
+- 中国兵器工业导航与控制技术研究所
+  人工智能研究
+
+
 ## 待投递单位
 
 - 中国航空制造技术研究院（放弃）
@@ -76,3 +83,7 @@ https://mp.weixin.qq.com/s/hVKikh3HFXeDL_ceW_QxQQ
 - 京东博士研究生管培生项目（放弃）
 
 https://mp.weixin.qq.com/s/Uc-MbQS3kXk8Dhxvti7K9g
+
+# Offer
+
+空天院二部，40~50w
