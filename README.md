@@ -51,6 +51,9 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
   智能总体研究所
 
+- 三一集团
+
+算法工程师
 
 ## 待投递单位
 
