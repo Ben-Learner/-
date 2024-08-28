@@ -53,7 +53,7 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
 - 三一集团
 
-算法工程师
+  算法工程师(45w起)
 
 ## 待投递单位
 
