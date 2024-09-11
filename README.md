@@ -64,6 +64,12 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
   集团总部-人工智能管理与应用岗
 
+- 宝洁
+
+- 501总体设计部
+
+- 中广核
+
 ## 弃投单位
 
 - 中国航空制造技术研究院（放弃）
@@ -114,3 +120,6 @@ https://mp.weixin.qq.com/s/LKQQlMoBYvbTF2caeIPEDA
 
 - 北京协和医学院物理师（技师类招聘，一般11月份）
 
+- 电科院
+
+- 中航工业（0922宣讲）
