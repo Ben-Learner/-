@@ -64,7 +64,7 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
   集团总部-人工智能管理与应用岗
 
-## 待投递单位
+## 弃投单位
 
 - 中国航空制造技术研究院（放弃）
 
@@ -86,17 +86,12 @@ https://mp.weixin.qq.com/s/BTNr8zpqaS-u--RidIHgyA
 
 https://mp.weixin.qq.com/s/Wc9nCbqRLjqWVQvt7lMjfQ
 
-- 国家电网提前批（未到时间）
 
-https://mp.weixin.qq.com/s/LKQQlMoBYvbTF2caeIPEDA
 
 - 腾讯2025青云计划（放弃）
 
 https://mp.weixin.qq.com/s/zVB0eLilxP8zXJjztZmvew
 
-- 中国船舶集团（九月份开启）
-
-https://mp.weixin.qq.com/s/hVKikh3HFXeDL_ceW_QxQQ
 
 - 京东博士研究生管培生项目（放弃）
 
@@ -105,3 +100,17 @@ https://mp.weixin.qq.com/s/Uc-MbQS3kXk8Dhxvti7K9g
 # Offer
 
 空天院二部，40~50w
+
+ ## 待投递单位
+
+ - 中国船舶集团（九月份开启）
+
+https://mp.weixin.qq.com/s/hVKikh3HFXeDL_ceW_QxQQ
+
+- 国家电网提前批（未到时间）
+
+https://mp.weixin.qq.com/s/LKQQlMoBYvbTF2caeIPEDA
+
+
+- 北京协和医学院物理师（技师类招聘，一般11月份）
+
