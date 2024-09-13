@@ -70,6 +70,14 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
 - 中广核
 
+- 中信集团总部
+
+- 中国航天科工二院二十五所（30-45w）
+
+- 工行总行
+
+- 中信信托
+
 ## 弃投单位
 
 - 中国航空制造技术研究院（放弃）
@@ -123,3 +131,7 @@ https://mp.weixin.qq.com/s/LKQQlMoBYvbTF2caeIPEDA
 - 电科院
 
 - 中航工业（0922宣讲）
+
+- 华能集团
+
+- 中芯国际
