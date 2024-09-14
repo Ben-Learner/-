@@ -78,6 +78,12 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
 - 中信信托
 
+- 简历嘉年华
+
+  智谱AI
+  航天科工二院二部
+  经纬恒润
+
 ## 弃投单位
 
 - 中国航空制造技术研究院（放弃）
