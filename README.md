@@ -61,7 +61,7 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
   智能复杂系统工程师
 
   9月24号上午，非正式面试。
-  
+
 
 - 国家管网（20240911）
 
@@ -117,6 +117,10 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 - 航天科工智能院
  
   技术面
+
+- 电规总院
+
+  发电工程咨询岗
 
 
 
