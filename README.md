@@ -74,6 +74,7 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 - 中广核数字科技有限公司
 
   人才测评
+  23号下午面试
 
 
 - 中信集团总部
@@ -121,6 +122,12 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 - 电规总院
 
   发电工程咨询岗
+
+- 比亚迪
+  
+  测评结束
+
+
 
 
 
