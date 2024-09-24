@@ -96,6 +96,7 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 
 - 同方股份
   博后
+  九月26日周四上午面试
 
 - 中国电科三所
 
@@ -126,6 +127,7 @@ https://mp.weixin.qq.com/s/y_6roYb3VDY-jRZk5r2cnQ
 - 比亚迪
   
   测评结束
+
 
 
 
